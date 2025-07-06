@@ -1,0 +1,1 @@
+# Mathematical-Trading-Strategies-Self-Project
